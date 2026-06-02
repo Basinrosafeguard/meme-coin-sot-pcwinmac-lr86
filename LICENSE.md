@@ -1,4 +1,4 @@
-# 
+# VIP meme coin sniper bot flujo de trabajo para Mac OS | Código abierto meme coin sniper bot flujo de trabajo para PC Windows. Con control de deslizamiento y fuentes en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
